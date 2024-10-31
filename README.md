@@ -2,7 +2,7 @@
    
 ![Untitled277_20241031173052](https://github.com/user-attachments/assets/7b0b4075-b550-452a-8afc-02b19691bed0) (✿◠‿◠)  ∿  @ rei ![Untitled277_20241031173000](https://github.com/user-attachments/assets/49f4e6be-a85c-4a4d-a4dc-50b4bb74bcd1)
 
-                 ✦   📃   .   she him
+                  ✦   📃   .   she him
    
                 ![Untitled277_20241031173051](https://github.com/user-attachments/assets/8a73ae22-8289-4871-a6be-84fabc617b7e)
  
