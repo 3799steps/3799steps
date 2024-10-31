@@ -4,6 +4,6 @@
 
                  ✦   📃   .   she him
    
-                 ![Untitled277_20241031173051](https://github.com/user-attachments/assets/8a73ae22-8289-4871-a6be-84fabc617b7e)
+                ![Untitled277_20241031173051](https://github.com/user-attachments/assets/8a73ae22-8289-4871-a6be-84fabc617b7e)
  
  ![Untitled274_20241031163533](https://github.com/user-attachments/assets/5426668c-155c-4466-8200-5c38d94d5320)
